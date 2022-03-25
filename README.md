@@ -1,1 +1,1 @@
-# GeTitMediaX.github.io
+# getitmediax.github.io
