@@ -1,1 +1,1 @@
-# getitmediax.github.io
+# https://www.getitmediax.ga/
